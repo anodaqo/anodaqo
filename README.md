@@ -1,5 +1,6 @@
 # zzz
 uugghg  uu uuuuu💤💤💤
+<p>I block everyone I don't like freely, especially eddsworld fans. I genuinely don't want to interact with any of you and I have you all blocked. don't even try interacting, you'll be talking to a brick wall. #sorry or something Idk</p>
 
 <img width="735" height="507" alt="cat from no i&#39;m not human" src="https://github.com/user-attachments/assets/4cc10bbc-0d24-4e3b-ab31-05252aa60c84" />
 
